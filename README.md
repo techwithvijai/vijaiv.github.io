@@ -1,5 +1,1 @@
-Coming Soon! 
-
-Thank you for reaching out.
-
-Email: vijai.veerapandian@gmail.com
+To contact email: vijai.veerapandian@gmail.com
